@@ -4,4 +4,4 @@ V de Vingança
 O Auto da Compadecida
 O Senhor das Armas
 Sniper Americano
-é verdade 2.0
+okay
