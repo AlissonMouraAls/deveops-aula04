@@ -1,5 +1,6 @@
 # deveops-aula04
 Aula DevOps branch
 V de Vingança
-O  Poço
+O Auto da Compadecida
 O Senhor das Armas
+Sniper Americano
